@@ -43,5 +43,5 @@ https://user-images.githubusercontent.com/113450612/231375381-8316d46f-5dca-4a19
 
 
 
-<h2 align="center"> Espero que tenham gostado, see you! xoxo 👋 </h2>
+<h2 align="center"> Espero que tenham gostado, see you! xoxo👋 </h2>
 
